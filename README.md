@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+I'm Norhan,
+🔭 I’m currently working on being a real good iOS Developer.
+💬 Ask me about Night sky and how to be awesome. 
+
+
