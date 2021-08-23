@@ -20,4 +20,14 @@ I'm Norhan,
 
 💬 Ask me about Night sky and how to be awesome. 
 
+🤔 I’m looking for a full-time job as an iOS Developer. 
+
+📫 How to reach me: 
+- norhanboghdadi@gmail.com 
+- https://www.linkedin.com/in/norhan-boghdadi/
+
+
+
+
+
 
