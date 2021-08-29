@@ -16,7 +16,7 @@ Here are some ideas to get you started:
 -->
 I'm Norhan,
 
-🔭 I’m currently working on being the better version developer of me.
+🔭 I’m currently working on being the better developer version of me.
 
 💬 Ask me about Night sky and how to be awesome. 
 
